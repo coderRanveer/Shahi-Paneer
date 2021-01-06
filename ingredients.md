@@ -1,0 +1,1 @@
+Paneer ,Butter ,Coriander ,Tomato ,Milk ,Peppers ,Garam Masala ,Onion ,Cream ,Garlic ,Cashew ,Yogurt ,Cumin ,Salt ,Ginger ,Cottage Cheese ,Cardamon ,Ghee ,Chili Powder.
